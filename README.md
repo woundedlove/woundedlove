@@ -1,6 +1,6 @@
 <div align="center" dir="auto">
 
-╰ ‎ ৎ ‎ ⊹⠀⠀![](https://komarev.com/ghpvc/?username=grimfantasy&color=FFFFFF&style=flat&label=‎‎⠀⠀♡‎‎‎⠀⠀)⠀⠀₊ ‎ ⟢‎  ೀ
+╰ ‎ ৎ ‎ ⊹⠀⠀![](https://komarev.com/ghpvc/?username=grimfantasy&color=lightgrey&style=flat&label=‎‎⠀⠀♡‎‎‎⠀⠀)⠀⠀₊ ‎ ⟢‎  ೀ
 
 i complimented someone while unknowingly being the character that they hated 😂😂😂
 
