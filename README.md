@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=grimfantasy)
+![](https://komarev.com/ghpvc/?username=grimfantasy&color=000000&style=plasic&label=♡)
 
 <p align="center">i complimented someone while unknowingly being the character that they hated 😂😂😂</p>
 
