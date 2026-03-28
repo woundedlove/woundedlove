@@ -1,6 +1,4 @@
-<div class="center-text">
-    <p>![](https://komarev.com/ghpvc/?username=grimfantasy)</p>
-</div>
+![](https://komarev.com/ghpvc/?username=grimfantasy)
 
 <p align="center">i complimented someone while unknowingly being the character that they hated 😂😂😂</p>
 
