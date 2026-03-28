@@ -1,7 +1,4 @@
-<p align="center">
-  <!-- Your views counter Markdown image code goes here -->
-  !(https://komarev.com/ghpvc/?username=grimfantasy)
-</p>
+![](https://komarev.com/ghpvc/?username=grimfantasy)
 
 <p align="center">i complimented someone while unknowingly being the character that they hated 😂😂😂</p>
 
