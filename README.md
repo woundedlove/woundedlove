@@ -1,6 +1,8 @@
 <div align="center" dir="auto">
 
-![](https://komarev.com/ghpvc/?username=grimfantasy&color=000000&style=plasic&label=♡)ㅤ𓏵
+![](https://komarev.com/ghpvc/?username=grimfantasy&color=000000&style=plasic&label=♡)
+
+𓏵
 
 <p align="center">i complimented someone while unknowingly being the character that they hated 😂😂😂</p>
 
