@@ -6,7 +6,7 @@ i complimented someone while unknowingly being the character that they hated �
 
 sorry abt that btw......
 
-soooooo i def like all of y'alls ponies, i'm just in fear now 🥹🥹
+soooooo i def like all of y'alls ponies, i'm just in fear of complimenting now 🥹🥹
 
 pfp is by @xu_xian14572 on x/twitter ^_^
 
